@@ -5,7 +5,7 @@
 - 📫 How to reach me right here or on facebook
 - 😄 Pronouns: we, they, us...I want to be a great leader
 - ⚡ Fun fact: reading is one of my favorite passtimes
-- More fun facts: I Love Learning ❤️ 
+- ❤️ More fun facts: I Love Learning  
 
 <!---
 TiffBower/TiffBower is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
